@@ -1,5 +1,5 @@
 # Composicion
-Esta pasta está minhas contribuições com composição de trilha sonora
+Aqui estão minhas contribuições com composição de trilha sonora
 
 ##### 🎼Angst voor Angst - AVA - FoG - itch.io
 ##### 🎼Bite of Seth - itch.io
